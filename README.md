@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Rainelito, I am cuban-spanish Medical Doctor with a board certification in internal medicine. In addition I am PhD in Medicine at https://www.ehu.eus/en/en-home 
+- 👀 I’m interested in innovative medicine, neuroscience, rare disease, gene therapies, clinical research, medical education, generative AI, geomedicine and geopolitics 
+- 🌱 I’m currently learning Lean Thinking Knowledge and Practice, also traditional Spanish cuisine 
+- 💞️ I’m looking to collaborate on medical education, global consultancy, venture partner, volunteers and non-profit organizations
+- 📫 How to reach me https://www.linkedin.com/in/rainel/ 
+- 😄 Pronouns: He 
